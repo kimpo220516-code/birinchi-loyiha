@@ -1,0 +1,2 @@
+# birinchi-loyiha
+salom
